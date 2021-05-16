@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @auturz
+- 👀 I’m interested in Coding, even though I'm not too great at it, UI/UX/GUI design on ROBLOX, Building ROBLOX games.
+- 🌱 I’m currently working on Waver Go-Karting on ROBLOX. roblox.com/games/6735930241/Waver
+- 💞️ I’m looking to collaborate on nothing yet, I'm going to try to complete my solo projects first.
